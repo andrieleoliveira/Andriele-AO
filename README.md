@@ -2,11 +2,11 @@
 <br>
 - 17 years old
 <br>
-- programming java, c++, sql, python and php
+- Programming Java, C++, SQL, Python and PHP
 <br>
-- satc technology center
+- Satc Technology Center
 <br>
-- brazilian
+- Brazilian
 <br>
-🌴🌸🐌
-<img src="https://tenor.com/view/guaton-computadora-enojado-computer-rage-gif-14480338">
+🌸🌴🍉🇧🇷
+<img src="https://c.tenor.com/U9qt-K3WP0cAAAAd/sadiafurukawa-pataburra.gif">
