@@ -1,11 +1,12 @@
 # Andriele-AO
 <br>
-- 16 yo
+- 17 years old
 <br>
-- programming java and c++
+- programming java, c++, sql, python and php
 <br>
 - satc technology center
 <br>
-- 
-
-<img src="https://24.media.tumblr.com/5c18978211deff42f47817cbfe043258/tumblr_mhyvqnvx7Z1ry46hlo1_r2_500.gif">
+- brazilian
+<br>
+🌴🌸🐌
+<img src="https://tenor.com/view/guaton-computadora-enojado-computer-rage-gif-14480338">
